@@ -1,7 +1,7 @@
 ## Hi! I usually don't talk so please don't expect me to :) I encourage c+h but I do have boundaries for them in the ponies' name if I dont want to c+h with anything specific!
 I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are Kazuscara,Sethoscara, Illuhen, and       Lawlight! I'll c+h with other characters but pls don't think I ship it.
               
-<img width="736" height="414" alt="add0dfbb5eb42212191551783ef0e79b" src="https://github.com/user-attachments/assets/c42256ff-7756-483f-b81e-1266627cccb3" />
+<img width="736" height="414" alt="add0dfbb5eb42212191551783ef0e79b" src="https://github.com/user-attachments/assets/1998bb02-89f2-440c-891d-ef32d8f161b6" />
 
 
 I usually am wanderer/scaramouche/illuga/lohen !! 
